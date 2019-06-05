@@ -1,3 +1,3 @@
 # hello-world
 
-i wanna do something big
+a lot of things to learn
